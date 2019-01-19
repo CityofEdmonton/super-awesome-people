@@ -2,5 +2,5 @@
 
 A well curated list of exceptional talent.
 
-###People:
+
 Nina 
