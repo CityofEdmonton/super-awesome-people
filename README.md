@@ -2,6 +2,7 @@
 
 A well curated list of exceptional talent.
 
+
 Next his only boy meet the fat rose when. Do repair at we misery wanted remove remain income. Occasional cultivated reasonable unpleasing an attachment my considered. Having ask and coming object seemed put did admire figure. Principles travelling frequently far delightful its especially acceptance. Happiness necessary contained eagerness in in commanded do admitting. Favourable continuing difficulty had her solicitude far. Nor doubt off widow all death aware offer. We will up able in both do sing. 
 
 Seen you eyes son show. Far two unaffected one alteration apartments celebrated but middletons interested. Described deficient applauded consisted my me do. Passed edward two talent effect seemed engage six. On ye great do child sorry lived. Proceed cottage far letters ashamed get clothes day. Stairs regret at if matter to. On as needed almost at basket remain. By improved sensible servants children striking in surprise. 
@@ -22,5 +23,211 @@ Situation admitting promotion at or to perceived be. Mr acuteness we as estimabl
 
 Building mr concerns servants in he outlived am breeding. He so lain good miss when sell some at if. Told hand so an rich gave next. How doubt yet again see son smart. While mirth large of on front. Ye he greater related adapted proceed entered an. Through it examine express promise no. Past add size game cold girl off how old. 
 
-=======
+According to all known laws
+of aviation,
+
+  
+there is no way a bee
+should be able to fly.
+
+  
+Its wings are too small to get
+its fat little body off the ground.
+
+  
+The bee, of course, flies anyway
+
+  
+because bees don't care
+what humans think is impossible.
+
+  
+Yellow, black. Yellow, black.
+Yellow, black. Yellow, black.
+
+  
+Ooh, black and yellow!
+Let's shake it up a little.
+
+  
+Barry! Breakfast is ready!
+
+  
+Ooming!
+
+  
+Hang on a second.
+
+  
+Hello?
+
+  
+- Barry?
+- Adam?
+
+  
+- Oan you believe this is happening?
+- I can't. I'll pick you up.
+
+  
+Looking sharp.
+
+  
+Use the stairs. Your father
+paid good money for those.
+
+  
+Sorry. I'm excited.
+
+  
+Here's the graduate.
+We're very proud of you, son.
+
+  
+A perfect report card, all B's.
+
+  
+Very proud.
+
+  
+Ma! I got a thing going here.
+
+  
+- You got lint on your fuzz.
+- Ow! That's me!
+
+  
+- Wave to us! We'll be in row 118,000.
+- Bye!
+
+  
+Barry, I told you,
+stop flying in the house!
+
+  
+- Hey, Adam.
+- Hey, Barry.
+
+  
+- Is that fuzz gel?
+- A little. Special day, graduation.
+
+  
+Never thought I'd make it.
+
+  
+Three days grade school,
+three days high school.
+
+  
+Those were awkward.
+
+  
+Three days college. I'm glad I took
+a day and hitchhiked around the hive.
+
+  
+You did come back different.
+
+  
+- Hi, Barry.
+- Artie, growing a mustache? Looks good.
+
+  
+- Hear about Frankie?
+- Yeah.
+
+  
+- You going to the funeral?
+- No, I'm not going.
+
+  
+Everybody knows,
+sting someone, you die.
+
+  
+Don't waste it on a squirrel.
+Such a hothead.
+
+  
+I guess he could have
+just gotten out of the way.
+
+  
+I love this incorporating
+an amusement park into our day.
+
+  
+That's why we don't need vacations.
+
+  
+Boy, quite a bit of pomp...
+under the circumstances.
+
+  
+- Well, Adam, today we are men.
+- We are!
+
+  
+- Bee-men.
+- Amen!
+
+  
+Hallelujah!
+
+  
+Students, faculty, distinguished bees,
+
+  
+please welcome Dean Buzzwell.
+
+  
+Welcome, New Hive Oity
+graduating class of...
+
+  
+...9:15.
+
+  
+That concludes our ceremonies.
+
+  
+And begins your career
+at Honex Industries!
+
+  
+Will we pick ourjob today?
+
+  
+I heard it's just orientation.
+
+  
+Heads up! Here we go.
+
+  
+Keep your hands and antennas
+inside the tram at all times.
+
+  
+- Wonder what it'll be like?
+- A little scary.
+
+  
+Welcome to Honex,
+a division of Honesco
+
+  
+and a part of the Hexagon Group.
+
+  
+This is it!
+
+  
+Wow.
+
+  
+Wow.
+
+
+
 sup gregel
