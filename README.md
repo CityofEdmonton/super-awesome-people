@@ -2,5 +2,6 @@
 
 A well curated list of exceptional talent.
 
+Nina
 
-Nina 
+Jenaya
